@@ -1,4 +1,4 @@
-
+![t8miem1bjh191](https://github.com/user-attachments/assets/2ad34dcd-200e-4276-96a7-cbf689095f8c)
 
 <h1 align="center">👹 Sukuna Dev - Em constante evolução</h1>
 
@@ -9,6 +9,12 @@
 ---
 
 🧠 **Sobre mim**
+
+Meu nome é Isaac
+15 anos
+Gosto bastante de animes e jogos, atualmente estou fazendo um curso de python, interessante
+Personagem favorito: Sukuna
+
 
 > "Menos esforço, mais tempo para jogo!"
 
