@@ -44,8 +44,9 @@ O caos está apenas começando. 👁️‍🗨️
 📫 Fale comigo
 
 ✉️ Discord: sukuna_aka_akira
+Gmail: isaacsalesoliver@gmail.com
 
-[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/akira_gh0st) [![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:isaacsalesoliver@gmail.com) [![TikTok](https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok&logoColor=white)](https://www.tiktok.com/@akira_gh0st)
+[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/akira_gh0st) [![TikTok](https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok&logoColor=white)](https://www.tiktok.com/@akira_gh0st)
 
 
 
